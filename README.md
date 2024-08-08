@@ -17,6 +17,10 @@ Como seria o CR7 com as roupas de um aluno de Hogwarts, explicando o funcionamen
 ## 🚀 Resultados
 (https://studio.d-id.com/share?id=f22bc40d1657a58f45e27ca4228210c2&utm_source=copy)
 
+
+https://github.com/user-attachments/assets/c80700b3-efc8-44c0-ba52-739c5c8e5906
+
+
 ## 💭 Reflexão
 Com as ferramentas certas e com a criatividade, conseguimos executar 
 
